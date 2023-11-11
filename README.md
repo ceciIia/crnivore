@@ -1,16 +1,17 @@
-### Hi there 👋
+# Byi/dni
 
-<!--
-**crnivore/crnivore** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Crowns, ͏ ͏compliments, ͏ ͏boops, ͏ ͏kisses ͏ ͏are ͏ ͏all ͏ ͏ok ͏ ͏and ͏ ͏welcomed.
 
-Here are some ideas to get you started:
+Whisper ͏ ͏to ͏ ͏get ͏ ͏my ͏ ͏attention ͏ ͏since ͏ ͏I ͏ ͏do ͏ ͏not ͏ ͏sit ͏ ͏and ͏ ͏stare ͏ ͏at ͏ ͏my ͏ ͏screen ͏ ͏all ͏ ͏the ͏ ͏time. ͏ ͏^^;
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I ͏ ͏am ͏ ͏always ͏ ͏sitting ͏ ͏in ͏ ͏the ͏ ͏market.
+
+I ͏ ͏don't ͏ ͏mind ͏ ͏anyone ͏ ͏who ͏ ͏takes ͏ ͏inspo ͏ ͏off ͏ ͏me. ͏ ͏BUT ͏ ͏ASK ͏ ͏FIRST!! ͏ ͏-_-
+
+Anyone ͏ ͏under ͏ ͏18y/o ͏ ͏please ͏ ͏limit ͏ ͏your ͏ ͏interactions. ͏ ͏I ͏ ͏am ͏ ͏20y/o ͏ ͏qq ͏ ͏
+
+JJBA ͏ ͏ponies ͏ ͏make ͏ ͏me ͏ ͏paranoid ͏ ͏and ͏ ͏for ͏ ͏that ͏ ͏reason ͏ ͏I ͏ ͏mostly ͏ ͏avoid ͏ ͏any ͏ ͏who ͏ ͏wears ͏ ͏one. ͏ ͏I'm ͏ ͏sorry ͏ ͏... ͏ ͏
+
+Sit ͏ ͏with ͏ ͏me ͏ ͏if ͏ ͏you ͏ ͏so ͏ ͏prefer. ͏
+
+That's ͏ ͏all. ͏ ͏Will ͏ ͏be ͏ ͏updated ͏ ͏if ͏ ͏it ͏ ͏needs ͏ ͏to. ͏ ͏Bye ͏ ͏bye ͏ ͏^u^
